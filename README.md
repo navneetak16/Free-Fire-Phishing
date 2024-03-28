@@ -8,4 +8,4 @@ This site is the exact replica of the Original Site.
 
 Download & host the Repository to start. 
 
-for decrypted version and for help contact on t.me/@willing_143
+
